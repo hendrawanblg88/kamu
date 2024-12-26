@@ -1,0 +1,2 @@
+# kamu
+usahain kamu
